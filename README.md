@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ShenithS
+- 👋 Hi, I’m Shenith 
 
 
 <!---
